@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://k.top4top.io/p_22589xjh10.jpg" alt="SatzzDevs" width="360" />
+<img src="https://images4.alphacoders.com/126/thumb-1920-1264831.jpg" alt="SatzzDevs" width="400" />
 
 </p>
 <p align="center">
